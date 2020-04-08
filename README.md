@@ -10,7 +10,6 @@ https://forum.gamer.com.tw/C.php?bsn=7287&snA=3935
 
 
 在线版： 
-WPS Online
-https://kdocs.cn/l/s0MHAeGnv [金山文档] 大头菜证券.xlsx
-Office 365
-https://1drv.ms/x/s!AgrmMGnDBO6HlrQRz9xQXehSEDha-w?e=l9qUZ2
+腾讯文档
+【腾讯文档】大头菜证券交易所
+https://docs.qq.com/sheet/DZHNkeURVV1lnR1RO?c=K9A0A0
